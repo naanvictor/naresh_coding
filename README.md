@@ -1,1 +1,1 @@
-Naresh is worse guy
+Naresh is nice guy
